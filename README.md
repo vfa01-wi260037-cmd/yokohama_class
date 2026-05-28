@@ -1,0 +1,1 @@
+# yokohama_class
